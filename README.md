@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding & gaming
 - 🌱 I’m currently learning about your mom
 - 💞️ I’m looking to collaborate on fortnite bhop simulator
-- 📫 How to reach me ...
+- 📫 How to reach me on roblox adopt me
 - this was all a joke
 
 <!---
